@@ -18,3 +18,5 @@ I am flexible to change, but as of right now, I will be collecting data on the f
 *	Does the plant survive past a year 
 
 My first project will be one ginger root and two avocado pits — plants I have absolutely no experience in propagating with. I'll be taking photos, so tune in soon to check in on their progress. As always, any suggestions to any part of this project will be appreciated. 
+
+![Image of Avocado Pits and Ginger](https://pbs.twimg.com/media/EXeEd61UEAMdUb9?format=jpg&name=4096x4096)
